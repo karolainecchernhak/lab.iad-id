@@ -24,3 +24,6 @@ O desafio de criar algo 'natty' com IA foi simplesmente incrível. Aprender a ut
 
 
 
+https://github.com/karolainecchernhak/lab.iad-id/assets/169319922/21d8ef5b-634b-483a-b2a7-0d89fc239208
+
+
